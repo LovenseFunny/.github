@@ -1,3 +1,3 @@
-## Hi there 👋
+## hi 👋
 
 this project was a mistake im sorry >.<
