@@ -1,4 +1,4 @@
-## hi 👋
+## hi :3
 
 This project was a mistake, sorry >.<
 
