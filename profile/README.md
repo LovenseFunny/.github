@@ -3,4 +3,4 @@
 This project was a mistake, sorry >.<
 
 > Use my Lovense affiliate link though :3 [Lovense Affiliate Link](https://www.lovense.com/r/s8qaen)\
-> Created by [plushie#2941](https://discord.gg)
+> Created by [plushie#2941](https://instagram.com/blamejasmine)
