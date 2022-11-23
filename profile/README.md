@@ -2,5 +2,4 @@
 
 This project was a mistake, sorry >.<
 
-> Use my Lovense affiliate link though :3 [Lovense Affiliate Link](https://www.lovense.com/r/s8qaen)\
-> Created by [@nessacistic / nessa#2496](https://instagram.com/nessacistic)
+> Dead project, this was created by [@nessacistic / nessa#2496](https://instagram.com/nessacistic)
